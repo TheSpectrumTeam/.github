@@ -1,1 +1,0 @@
-# We are Spectrum Team.
