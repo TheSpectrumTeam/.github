@@ -1,1 +1,1 @@
-# .github
+# We are Spectrum Team.
