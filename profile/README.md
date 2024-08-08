@@ -1,4 +1,4 @@
-<img src="https://github.com/TheSpectrumTeam/.github/blob/main/InShot_20240805_165034800.jpg">
+<img src="https://github.com/TheSpectrumTeam/.github/blob/main/InShot_20240808_215132571.jpg">
 
 ## We are Spectrum Team.
 
